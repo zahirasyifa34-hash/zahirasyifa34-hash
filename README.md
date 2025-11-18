@@ -1,4 +1,4 @@
-## Hi everyone! 👋 I'm **Syifa Zahira**
+## 🌼Hi everyone! 👋 I'm **Syifa Zahira🌼**
 A first-year university student exploring the world of programming and technology.
 
 ### 🎓 About Me
